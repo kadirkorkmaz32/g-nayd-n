@@ -1,0 +1,2 @@
+# g-nayd-n
+günaydın
